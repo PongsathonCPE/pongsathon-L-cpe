@@ -19,4 +19,4 @@ I am an **Associate Data Engineer** and a Computer Engineering graduate from Ass
 
 📫 **How to reach me:**
 - 📧 **Email:** pongsathon.laoaree@gmail.com
-- 💼 **LinkedIn:** [://linkedin.com](www.linkedin.com/in/pongsathon-l-cpe)
+- 💼 **LinkedIn:** [://linkedin.com](https://www.linkedin.com/in/pongsathon-l-cpe)
